@@ -1,1 +1,1 @@
-Kyle Sincenne Winchs Portfolio
+Kyle Sincennes Winchs Portfolio
